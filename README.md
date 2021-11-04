@@ -1,4 +1,4 @@
-- Hello! I am Xemoness.
+- Hello! I am Xemoness. I am currently an active Beta tester for SWEM.
 - My Discord is Hikikomori#6669
 - I do art commissions, if you are interested, please send me a DM via Discord :)
 
